@@ -1,1 +1,0 @@
-# Palabra del dia: Compañeros
